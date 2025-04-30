@@ -1,1 +1,1 @@
-# Spicy-Food-STore
+# Spicy-Food-Store
